@@ -7,4 +7,4 @@
 
 - Content here may not be original.
 
-___***All of this work was done by "potentially lawrence" on GitHub.***___
+___***All of this work was done by "potentiallylawrence" on GitHub.***___
